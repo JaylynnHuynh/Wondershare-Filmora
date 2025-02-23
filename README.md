@@ -1,4 +1,4 @@
-# Wondershare Filmora 🎥🔓    
+# Wondershare Filmora 🎥🔓     
 
 Welcome to the Wondershare Filmora repository! This tool includes a keygen for unlocking all the editing features, providing you with full access to create stunning videos.
 
